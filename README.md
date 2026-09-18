@@ -31,5 +31,5 @@ University of Urmia, Iran
 B.Sc. in Chemistry
 University of Urmia, Iran
 Connect With Me:
-- LinkedIn:Linkedin.com/in/farnaz-ghasemkhany-a146522b5
+- LinkedIn: Linkedin.com/in/farnaz-ghasemkhany-a146522b5
 - ORCID: http://orcid.org/0009-0000-5020-9345
